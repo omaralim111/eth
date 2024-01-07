@@ -1,4 +1,3 @@
-# eth
-PAY FOR  CONTENT
-WITH ETHEREUM
-SIMPLE
+Art Officially Inteligent
+
+block chain content 
